@@ -1,3 +1,3 @@
 # musicbusinesscard
  
-まだない
+詳細→
